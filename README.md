@@ -1,1 +1,1 @@
-nihalcashbegin:fyinformation.cc:nihalcashend
+nihalcashbegin:nihalcash.top:nihalcashend
